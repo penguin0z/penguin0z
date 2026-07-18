@@ -1,10 +1,10 @@
-<p align="center"> <img src="https://github.com/user-attachments/assets/6c8afe4e-01eb-4642-ab82-a5155e1f437b"  width="450"> </p>
-
-<p align="center"> 
-  wip still bruh
-  <img align="center" src="https://github.com/user-attachments/assets/338f4bd0-6c59-4495-ad05-30d1f86667a2"  width="340"> </p>
+<p align="center"> <img align="center" src="https://github.com/user-attachments/assets/69d90885-7ddc-4d1d-af69-89be5fc9d8d7"  width="320"> </p>
 
 
-<p align="center"> <img src="https://github.com/user-attachments/assets/51e3cf23-e2fb-43aa-8efa-595a9df8ad48" width="450"> </p>
 
 
+### <p align="center"> **${{\color{#545f94}{\textsf{PENGU1N}}}}$**
+  
+### <p align="center"> ${{\color{#a1a9d1}{\textsf{he . they}}}}$ <br/> ${{\color{#ffffff}{\textsf{c+h enc, w2i - always offtab}}}}$ <br/> ${{\color{#a1a9d1}{\textsf{follow my main}}}}$ <br/> <p align="center"> [@vanderbell](https://github.com/vanderbell)
+
+<p align="center"> <sub> i have to remake this pls ignore lololol </sub>
