@@ -7,7 +7,7 @@
   
 ### <p align="center"> ${{\color{#a1a9d1}{\textsf{he . they}}}}$ <br/> ${{\color{#ffffff}{\textsf{c+h enc, w2i - always offtab}}}}$ <br/> ${{\color{#a1a9d1}{\textsf{follow my main}}}}$ <br/> <p align="center"> [@vanderbell](https://github.com/vanderbell)
 
-<p align="center"> <sub> i have to remake this pls ignore lololol </sub>
+<p align="center"> <sub> </sub>
 <br/>
 <br/>
 <br/>
