@@ -11,7 +11,7 @@
   <br>
   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Alata&duration=4500&pause=1500&color=ffffff&center=true&vCenter=true&width=300&lines=and+how+many+times+must+i+say;i'm+not+sorry%3F;and+how+many+ways+i+can+show;i+don't+care%3F" alt="Typing SVG" /></a>
 
-ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤ  [pronouns](https://pronoun.cc/@vanderbell)ㅤㅤㅤ [carrd](https://moist.carrd.co/) ㅤㅤㅤ[main](https://github.com/vanderbell) 
+ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤ  [pronouns](https://pronouns.cc/@vanderbell)ㅤㅤㅤ [carrd](https://moist.carrd.co/) ㅤㅤㅤ[main](https://github.com/vanderbell) 
   <br>
   <br>
   <br>
