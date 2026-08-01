@@ -1,153 +1,42 @@
-<br/>
-<br/>
-<br/>
-<p align="center"> <img align="center" src="https://github.com/user-attachments/assets/69d90885-7ddc-4d1d-af69-89be5fc9d8d7"  width="320"> </p>
+<img align="right" src="https://github.com/user-attachments/assets/d2bcb92c-a08e-43bd-a7a2-bf1d46084058" width="420" > 
+<br>
+  <br>
+  <br>
+  <br>
+  <br>
+  <br>
+  <br>
+  <br>
+  <br>
+  <br>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Alata&duration=4500&pause=1500&color=ffffff&center=true&vCenter=true&width=435&lines=and+how+many+times+must+i+say;i'm+not+sorry%3F;and+how+many+ways+i+can+show;i+don't+care%3F" alt="Typing SVG" /></a>
 
+ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  [pronouns](https://pronoun.cc/@vanderbell)ㅤㅤㅤ [carrd](https://carrd.co/moist) ㅤㅤㅤ[main](https://github.com/vanderbell)
 
-
-
-### <p align="center"> **${{\color{#545f94}{\textsf{PENGU1N}}}}$**
-  
-### <p align="center"> ${{\color{#a1a9d1}{\textsf{he . they}}}}$ <br/> ${{\color{#ffffff}{\textsf{c+h enc, w2i - always offtab}}}}$ <br/> ${{\color{#a1a9d1}{\textsf{follow my main}}}}$ <br/> <p align="center"> [@vanderbell](https://github.com/vanderbell)
-
-<p align="center"> <sub> </sub>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-  <br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
+  <br>
+  <br>
+  <br>
+  <br>
+  <br>
+  <br>
+  <br>
+  <br>
+  <br>
+    <br>
+  <br>
+  <br>
+  <br>
+  <br>
+  <br>
+  <br>
+  <br>
+  <br>
+    <br>
+  <br>
+  <br>
+  <br>
+  <br>
+  <br>
+  <br>
+  <br>
+  <br>
