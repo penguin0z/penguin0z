@@ -20,7 +20,7 @@ $\color{#f9fefa}{\text{OR hero. ㅤhe/they, isfp-t, 23/09ㅤ.}}$ </br>
 $\color{#c0dbec}{\texttt{“ Oh, you know. Here, there, chasing down dead ends.}}$ </br> 
 $\color{#c0dbec}{\text{And guess what? They’re not all dead. ”}}$ </br>
 <br>
- $\color{#c0dbec}{\text{꒰}}$ㅤㅤ<a href="https://rimtempest.carrd.co/"><img src="https://img.shields.io/badge/CARRD-032958?style=flat-square&link=https%3A%2F%2Frimtempest.carrd.co%2F"></a><a href="https://pronouns.cc/vanderbell/"><img src="https://img.shields.io/badge/PRNS.CC-032958?style=flat-square&link=https%3A%2F%2Fpronouns.cc%2F%40vanderbell"></a><a href="https://vanderbell.atabook.org/"><img src="https://img.shields.io/badge/ATABOOK-032958?style=flat-square&link=https%3A%2F%2Fvanderbell.atabook.org%2F"><a href="https://github.com/vanderbell"><img src="https://img.shields.io/badge/MAIN-032958?style=flat-square"></a>ㅤㅤ $\color{#c0dbec}{\text{꒱}}$ </br> 
+ $\color{#c0dbec}{\text{꒰}}$ㅤㅤ<a href="https://pronouns.cc/vanderbell/"><img src="https://img.shields.io/badge/PRNS.CC-032958?style=flat-square&link=https%3A%2F%2Fpronouns.cc%2F%40vanderbell"></a><a href="https://vanderbell.atabook.org/"><img src="https://img.shields.io/badge/ATABOOK-032958?style=flat-square&link=https%3A%2F%2Fvanderbell.atabook.org%2F"><a href="https://github.com/vanderbell"><img src="https://img.shields.io/badge/MAIN-032958?style=flat-square"></a>ㅤㅤ $\color{#c0dbec}{\text{꒱}}$ </br> 
 
 <br>
 <br>
